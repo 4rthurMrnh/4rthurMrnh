@@ -21,7 +21,7 @@ Estou em constante aprendizado, explorando ativamente novas tecnologias para exp
 
 #### 🌐 Me encontre na internet 🌍:
 
-* Aprendendo em público na **([Twitch](https://www.twitch.tv/im4rthurz))** ou **[TikTok/Outra Plataforma](https://www.tiktok.com/@im4rthurz)** 📹✍️
+* Aprendendo em público na **[Twitch](https://www.twitch.tv/im4rthurz)** ou **[TikTok/Outra Plataforma](https://www.tiktok.com/@im4rthurz)** 📹✍️
 
 ---
 
